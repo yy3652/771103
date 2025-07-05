@@ -21,4 +21,4 @@
 如果你正在寻找一个永久免费、内容丰富、体验流畅的日本AV网站，建议将本站加入书签，每日访问，获取最新女优动态与热门影片资源。我们将持续更新，只为带来更好、更安心的观影服务。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/771103 ）</span>
